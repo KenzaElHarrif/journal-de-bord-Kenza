@@ -13,11 +13,11 @@ Quantic Dreams est une compagnie qui travail surtout le motion capture. J'aimera
 Lulunetv est une vtubeuse québécoise qui fait des Livestreams sur twitch en utilisant un avatar virtuel. Ce qui m'intéresse serait l'animation d'un personnage et faire en sorte que le personnage suive les mouvements de la personne qui est positionnée devant sa caméra.
 
 ### [Dragon Age](https://www.ea.com/fr-fr/games/dragon-age)
-Dragon Age est un de mes jeux préférés,
+Dragon Age est un de mes jeux préférés, et travailler pour Bioware serait un rêve. Encore une fois j'aimerais faire de la motion capture, mais aussi travailler dans tout ce qui est animation, design ou création de pancartes de jeu ou de films. Ce jeu montre aussi mon côté un peu plus fantaisie et imaginaire.
 
 ### [That Game Company](https://www.thatskygame.com/)
-Expliquer pourquoi vous avez choisi ce lien. 
+Mon jeu préféré s'agit de Sky Children of the Light créé par ThatGameCompany. J'aime beaucoup cette idée d'interaction entre joueurs et rendre une plateforme de jeu multijoueur non-toxique, c'est à dire, sans qu'un joueur ne rabaisse un autre avec des propos malveillants. La sécurité et les droits des joueurs sont souvent mis de côtés sur les plateformes multijoueurs. Mais ThatGameCompany a créé un jeu sur lequel je n'ai jamais croisé une seule personne malveillant. Le jeu est centré sur l'aide et cela incite les personnes introverties à chercher un nouvel ami, ou bien à venir en aide aux autres.
 
-### [Greta Van Fleet](https://www.rexmusicprints.com/product-page/greta-van-fleet-skull-rose)
+### [Greta Van Fleet](https://gretavanfleet.com/)
 Expliquer pourquoi vous avez choisi ce lien. 
 
