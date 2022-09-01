@@ -18,6 +18,6 @@ Dragon Age est un de mes jeux préférés,
 ### [That Game Company](https://www.thatskygame.com/)
 Expliquer pourquoi vous avez choisi ce lien. 
 
-### [Greta Van Fleet]([https://shop.gretavanfleet.com/](https://www.rexmusicprints.com/product-page/greta-van-fleet-skull-rose))
+### [Greta Van Fleet](https://www.rexmusicprints.com/product-page/greta-van-fleet-skull-rose)
 Expliquer pourquoi vous avez choisi ce lien. 
 
