@@ -2,29 +2,26 @@
 ## Plan de présentation
 
 ### Présentation
-* Kenza
-* Dec en cinéma à Ahuntsic
-* J'aime cinéma, musique et jeux vidéos.
-* La cuisine marocaine (parce que je suis marocaine)
-* Maintenant étudiante en multimédia
+* Nom: Kenza
+* Un peu sur mes origines: Métisse québécoise et marocaine.
+* Passé en études: DEC en cinéma à Ahuntsic
 
 ### Intérêts dans le domaine
-* Jeux vidéos (Motion capture, design 3D, scénarisation)
-* Design publicité (Affiche d'artistes musique, albums, promo jeux ou de film, de livres)
-* Design Web (Création de sites webs)
-* Vtube (animation personnage 2D à la demande de clients)
+* Bref: un peu de tout. (jeux vidéos, design, animations, etc.)
 
 ### Emplois qui vous intéressent
 * Réalisatrice (director) de tournage de jeu. (Motion Capture)
-* Graphiste
-* Animation 3D (design de perso)
+* Design graphique
+* Animation 3D (design de personages, effets spéciaux)
 * Live 2D cubism (personnage vtube par exemple)
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+* Quantic Dreams
+* Vox Akuma
 
 ### Dans 5 ans
-Du freelance peut être.
+Accumuler de l'expérience pour un beau portfolio, graphisme particulièrement, car il sera encore trop tôt pour me lancer en jeux vidéo.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+Projet de création d'un personnage Vtuber.
+
