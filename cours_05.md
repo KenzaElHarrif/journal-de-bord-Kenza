@@ -2,10 +2,10 @@
 ## Rétrospective de la présentation 1
 
 ### Points forts
-Nommer deux points forts de votre présentation. 
+Je connais mes sujets et je parle assez fort afin que tout le monde puisse m'entendre.
 
 ### Points à améliorer
-Nommer deux points à améliorer de votre présentation et expliquer comment vous allez les travailler pour les prochaines présentations. 
+Avoir plus confiance en moi afin de parler calmemant et plus sûrement et améliorer mon powerpoint afin qu'il soit plus beau, mieux travaillé, et mieux organisé. 
 
 ### Présentation préférée
-Quelle présentation avez-vous préféré et pourquoi? 
+Khalytia. Sa présentation était claire, belle et simpliste. Elle avait confiance en elle en parlant et elle a bien travaillé.
