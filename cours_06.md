@@ -2,10 +2,14 @@
 ## Préparation en vue de la visite
 Préparer 5 questions en lien avec la visite que nous irons faire la semaine prochaine. Faites des recherches concernant ce que nous allons visiter afin d'en savoir plus. Les questions doivent porter sur des informations que vous ne pouvez pas trouver en ligne. 
 
-Eidos:-Quels sont les différents départements dans votre compagnie.
--Quels sont les qualités que vous rechercher le plus chez vos employés.
+Eidos:
+- Quels sont les différents départements dans votre compagnie ?
+- Quels sont les qualités que vous recherchez le plus chez vos employés ?
+- Quel est votre processus de création ?
 
 Sid Lee:
--Quels sont
+-Comment est-ce que vous faites pour approcher votre client ? **
+
+2 autres questions**
 
 Pix mob: 
