@@ -11,5 +11,3 @@ Eidos:
 Sid Lee:
 - Comment est-ce que vous faites pour approcher votre client ?
 
-
-Pix mob: 
