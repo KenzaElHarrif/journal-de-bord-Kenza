@@ -6,7 +6,7 @@ Eidos:
 - Quels sont les différents départements dans votre compagnie ?
 - Quels sont les qualités que vous recherchez le plus chez vos employés ?
 - Quel est votre processus de création ?
-- Comment fonctionne vos partenariats ?
+- Comment fonctionne vos partenariats ? Par exemple avec Square Enix ou même Marvel.
 
 Sid Lee:
 - Comment est-ce que vous faites pour approcher votre client ?
